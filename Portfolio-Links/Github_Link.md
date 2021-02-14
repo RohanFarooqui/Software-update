@@ -1,1 +1,1 @@
-https://github.com/LOL-32/
+https://www.github.com/LOL-32/
